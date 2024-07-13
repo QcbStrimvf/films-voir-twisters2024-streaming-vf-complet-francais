@@ -9,8 +9,6 @@ Regarder Dub France ➥ [Twisters (2024) Film complet en ligne gratuit](https://
 
 Regarder Dub English ➥ [Twisters (2024) Film complet en ligne gratuit](https://sbrhd.biz/en/movie/718821)
 
-<img src="https://fr.web.img6.acsta.net/img/29/eb/29eb8341475fdb0b19b1d7b995b70e17.jpg">
-
 Tout public
 Victime d’un complot, le jeune Edmond Dantès est arrêté le jour de son mariage pour un crime qu’il n’a pas commis. Après quatorze ans de détention au château d’If, il parvient à s’évader. Devenu immensément riche, il revient sous l’identité du comte de Monte-Cristo pour se venger des trois hommes qui l’ont trahi.
 
